@@ -1,2 +1,2 @@
-# Quiz-da-Tain-
+# Quiz-da-Taina 
 Quanto você conhece a Tainá?
